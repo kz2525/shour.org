@@ -1,1 +1,0 @@
-# shour.org
